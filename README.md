@@ -1,2 +1,3 @@
 # hello--world
-Just another REPOSITORY 
+Just another REPOSITORY
+My name is Lai and i'm starting this adventure with zero coding experience. The only experience I have is a little bit of Linux. I'm a wife , a mom of 2 beautiful awesome girls. Im a big Harry Potter geek add GOT to that as well. I love to just binge watch great shows wheneve time permits me. I forgot to menton that I love FRIENDS so much that I have I cannot even count how much I have seen alll the episodes. I hope this new journey I'm about to start is something that will show me where I need to be...
